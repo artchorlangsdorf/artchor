@@ -2,19 +2,12 @@
 
 # Impressum
 
-## ARtchor Langsdorf
+## ArtChor Langsdorf
 
-## Vertretungsberechtigter Vorstand:
-
-Daniel Jung (1. Vorsitzender);  Brauhausgasse 9, 35423 Lich - Langsdorf)
-
-Tobias Schäfer (2. Vorsitzender);  Lugge 2a, 35423 Lich - Langsdorf)
-
-Registergericht: Amtsgericht Gießen
-Registernummer: VR 000
+?????
 
 1. Haftungsbeschränkung
-Verantwortlich für dieses Informationsangebot ist die Freiwillige Feuerwehr Langsdorf e.V. (nachfolgend Herausgebergenannt). Die Informationen auf dieser Website wurden mit großer Sorgfalt zusammengestellt. Für die Richtigkeit und Vollständigkeit kann gleichwohl keine Gewähr übernommen werden. Aus diesem Grund ist jegliche Haftung für eventuelle Schäden im Zusammenhang mit der Nutzung des Informationsangebots ausgeschlossen. Durch die bloße Nutzung dieser Website kommt keinerlei Vertragsverhältnis zwischen Nutzer und Hostinganbieter/Herausgeber zustande.
+Verantwortlich für dieses Informationsangebot ist der ArtChor Langsdorf (nachfolgend Herausgebergenannt). Die Informationen auf dieser Website wurden mit großer Sorgfalt zusammengestellt. Für die Richtigkeit und Vollständigkeit kann gleichwohl keine Gewähr übernommen werden. Aus diesem Grund ist jegliche Haftung für eventuelle Schäden im Zusammenhang mit der Nutzung des Informationsangebots ausgeschlossen. Durch die bloße Nutzung dieser Website kommt keinerlei Vertragsverhältnis zwischen Nutzer und Hostinganbieter/Herausgeber zustande.
 
 2. Hinweis zum Urheberrecht
 Der gesamte Inhalt dieser Website unterliegt dem Urheberrecht. Unerlaubte Verwendung, Reproduktion oder Wiedergabe des Inhalts oder von Teilen des Inhalts ist untersagt. Wegen einer Erlaubnis zur Nutzung des Inhalts wenden Sie sich bitte an den Herausgeber.
