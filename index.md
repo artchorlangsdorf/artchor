@@ -11,6 +11,6 @@ Du findest uns auch bei facebook : [Facebook](www.facebook.com/ArtChorLangsdorf/
 
 ## !!!!  Nächste Termine  !!!! 
 
-Do. 07.04   19:30     Kleines Konzert  1  ev. Kirche Langsdorf
+- Do. 07.04   19:30     Kleines Konzert  1  ev. Kirche Langsdorf
 
-Do. 28.04   19:30     Kleines Konzert  2  ev. Kirche Langsdorf
+- Do. 28.04   19:30     Kleines Konzert  2  ev. Kirche Langsdorf
