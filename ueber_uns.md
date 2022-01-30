@@ -5,6 +5,7 @@ Der Art Chor Langsdorf wurde 1977 als Jugendchor der evangelischen Gemeinde in L
 
 # Der Chorleiter
 Thomas Bailly
+
 Der Dirigent und Musikpädagoge leitet seit 1985 Chöre und Vokal-Ensembles sämtlicher Gattungen und verschiedenster Stilrichtungen.
 
 1968 erster Instrumentalunterricht. 1977-1997 Organist in den Kirchengemeinden Wölfersheim, Giessen, Bad Nauheim. Nach dem Abitur Studium der Schulmusik, Kirchenmusik und Physik in Mainz und Frankfurt am Main. 
