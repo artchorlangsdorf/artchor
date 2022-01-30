@@ -1,4 +1,4 @@
-|[Home](index.md)|[Termine](Termine.md)|[Kontakte](kontakte.md)|[Impressum](impressum.md)|
+|[Home](index.md)|[Termine](termine.md)|[Kontakte](kontakte.md)|[Impressum](impressum.md)|
 
 # Kontakte
 
