@@ -2,4 +2,4 @@
 
 # Home
 
-![Logo](img/artchorlogo.jpg){:width="72px"}
+![Logo](img/artchorlogo.jpg){:width="300px"}
