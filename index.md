@@ -11,5 +11,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Do. 28.04|19:30|Kleines Konzert    | ev. Kirche Langsdorf|
 |So. 01.05|10:30|Konfirmation       | ev. Kirche Langsdorf|
