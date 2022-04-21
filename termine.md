@@ -6,7 +6,7 @@
 
 - Do. 07.04   Kleines Konzert ev. Kirche Langsdorf (!!!! fällt aus !!!!)
 
-- Do. 28.04   Kleines Konzert ev. Kirche Langsdorf
+- Do. 28.04   Kleines Konzert ev. Kirche Langsdorf (!!!! fällt aus !!!!)
 
 ## Mai
 
