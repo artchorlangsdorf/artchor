@@ -12,7 +12,7 @@
 
 - Sa. 01.05   Musikalische Gestaltung der Konfirmation  ev. Kirche Langsdorf
 
-- Sa. 21.05   Abschlusskonzert Chorprojekt intern ev. Kirche Langsdorf
+- Sa. 21.05   Abschlusskonzert Chorprojekt intern ev. Kirche Langsdorf (!!!! fällt aus !!!!)
 
 ## Juni
 
