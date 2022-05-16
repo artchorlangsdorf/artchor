@@ -11,4 +11,5 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|So. 01.05|10:30|Konfirmation       | ev. Kirche Langsdorf|
+|So. 12.06|10:30|Gottesdienst zum “Tag des offenen Dorfes”| ev. Kirche Langsdorf|
+
