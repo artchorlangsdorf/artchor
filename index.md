@@ -11,7 +11,6 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|So. 12.06|10:30|Gottesdienst zum “Tag des offenen Dorfes”| ev. Kirche Langsdorf|
 |Sa. 25.06|19:00|Ein kleines Konzert zur “Nacht der Kirchen”| ev. Kirche Langsdorf|
 
 ![Konzert](downloads/20220525%20NdK.jpg){:width="700px"}
