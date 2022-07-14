@@ -11,7 +11,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa. 25.06|19:00|Ein kleines Konzert zur “Nacht der Kirchen”| ev. Kirche Langsdorf|
+|Sa. 09.09|19:00|Gottesdienst| ev. Kirche Langsdorf|
 
-![Konzert](downloads/20220525%20NdK.jpg){:width="700px"}
+
 
