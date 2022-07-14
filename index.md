@@ -11,7 +11,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa. 09.09|19:00|Gottesdienst| ev. Kirche Langsdorf|
+|Fr.09.09|19:00|Gottesdienst| ev. Kirche Langsdorf|
 
 
 
