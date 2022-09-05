@@ -12,7 +12,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 ## !!!!  Nächste Termine  !!!! 
 
 |Fr.09.09|19:00|Gottesdienst| ev. Kirche Langsdorf|
-|SA.15.10|19:30|Konzert| Ettingshausen|
+|Sa.15.10|19:30|Konzert| Ettingshausen|
 
 
 
