@@ -11,7 +11,8 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa.15.10|19:30|Konzert| Ettingshausen|
-KONZERT FÄLLT AUS !!!!!
+|Sa.15.10|19:30|Konzert|Ettingshausen|
+
+##  !!!!! KONZERT FÄLLT AUS !!!!!
 
 
