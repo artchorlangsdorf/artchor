@@ -32,6 +32,11 @@
 - Sa. 15.10   Probenwochenende 2 / Konzert Ettingshausen !!! fällt aus
 - So. 16.10   Probenwochenende 2
 
+## Dezember
+
+- Sa. 17.12   Adventskonzert ev. Kirche Langsdorf
+- Sa. 24.12   Christmette ev. Kirche Langsdorf
+
 # Proben-Termine
 
 Probe: Donnerstags von 19.30 - 21.00 Uhr im Gemeindehaus in Langsdorf (außer in den Schulferien), aber am besten mal kurz vorher bei uns melden, da es immer mal sein kann, dass wir eine Probe verlegt haben.
