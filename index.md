@@ -11,8 +11,9 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa.15.10|19:30|Konzert|Ettingshausen|
+|Sa.17.12|19:00|Adventskonzert|ev. Kirche Langsdorf|
 
-##  !!!!! KONZERT FÄLLT AUS !!!!!
+![Logo2](img/konzert.jpg){:width="200px"}
+
 
 
