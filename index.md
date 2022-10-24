@@ -11,7 +11,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa.17.12|19:00|Adventskonzert|ev. Kirche Langsdorf|
+|Sa.17.12.22|19:00|Adventskonzert|ev. Kirche Langsdorf|
 
 ![Logo2](img/adventskonzert22.jpg){:width="200px"}
 
