@@ -1,41 +1,39 @@
 |[Home](index.md)|[Über uns](ueber_uns.md)|[Termine](termine.md)|[Kontakte](kontakte.md)|[Impressum](impressum.md)|
 
-# Termine 2022
+# Termine 2023
+
+## Februar
+
+- Fr. 03.02   Probenwochenende 1
+- So. 04.02   Probenwochenende 2
+- So. 26.02   10:30   Musikalische Gestaltung der diamantenen Konfirmation  ev. Kirche Langsdorf
+
+## März
+
+- Sa. 18.03   19:00   Konzert in Ettingshausen
+- So. 26.03   17:00   Orgel und Freunde ev. Kirche Langsdorf 
 
 ## April
 
-- Do. 07.04   Kleines Konzert ev. Kirche Langsdorf (!!!! fällt aus !!!!)
+- So. 23.04   10:30   Musikalische Gestaltung der Konfirmation  ev. Kirche Langsdorf
 
-- Do. 28.04   Kleines Konzert ev. Kirche Langsdorf (!!!! fällt aus !!!!)
+## Februar
 
-## Mai
+- So. 04.06   10:30   Musikalische Gestaltung der goldenen Konfirmation  ev. Kirche Langsdorf
 
-- Sa. 01.05   Musikalische Gestaltung der Konfirmation  ev. Kirche Langsdorf
+## Juli
 
-- Sa. 21.05   Abschlusskonzert Chorprojekt intern ev. Kirche Langsdorf (!!!! fällt aus !!!!)
-
-## Juni
-
-- So. 12.06   Gottesdienst zum “Tag des offenen Dorfes” ev. Kirche Langsdorf
-
-- Sa. 25.06.  Konzert “Nacht der Kirchen” (o.ä.) mit Ausklang ev. Kirche Langsdorf
-
-## September
-
-- Sa. 24.09   Abend-Gottesdienst ev. Kirche Langsdorf
+- Sa. 08.07   17:00   Gottesdienst zum “Tag des offenen Dorfes” ev. Kirche Langsdorf
+- Sa. 25.06.  17:00   Konzert "Schlossakkord" von TonArt Hungen
 
 ## Oktober
 
-- So. 09.10   Erntedank Gottesdienst ev. Kirche Langsdorf
-
-- Fr. 14.10   Probenwochenende 1
-- Sa. 15.10   Probenwochenende 2 / Konzert Ettingshausen !!! fällt aus
-- So. 16.10   Probenwochenende 2
+- So. 08.10   10:30   Erntedank Gottesdienst ev. Kirche Langsdorf
 
 ## Dezember
 
-- Sa. 17.12   Adventskonzert ev. Kirche Langsdorf
-- Sa. 24.12   Christmette ev. Kirche Langsdorf
+- Sa. 09.12   19:00   Adventskonzert ev. Kirche Langsdorf
+- So. 24.12   23:00   Christmette ev. Kirche Langsdorf
 
 # Proben-Termine
 
