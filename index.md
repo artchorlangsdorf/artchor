@@ -11,9 +11,9 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa.17.12.22|19:00|Adventskonzert|ev. Kirche Langsdorf|
+|So.26.02.23|10:30|Goldene Konfirmation|ev. Kirche Langsdorf|
 
-![Logo2](img/adventskonzert22.jpg){:width="600px"}
+
 
 
 
