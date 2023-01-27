@@ -11,7 +11,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|So.26.02.23|10:30|Goldene Konfirmation|ev. Kirche Langsdorf|
+|So.26.02.23|10:30|Diamantene Konfirmation|ev. Kirche Langsdorf|
 
 
 
