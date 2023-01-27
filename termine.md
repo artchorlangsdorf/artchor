@@ -17,7 +17,7 @@
 
 - So. 23.04.   10:30   Musikalische Gestaltung der Konfirmation  ev. Kirche Langsdorf
 
-## Februar
+## Juni
 
 - So. 04.06.   10:30   Musikalische Gestaltung der goldenen Konfirmation  ev. Kirche Langsdorf
 
