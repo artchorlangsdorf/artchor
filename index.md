@@ -17,7 +17,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 # ![Konzert](img/Musikalischer Gottesdienst.jpg){:width="400px"}
 
-# ![Konzert](img/KonzertEttingshausen.jpg){:width="400px"}
+# ![Konzert](img/KonzertEttingshausen.jpg){:width="800px"}
 
 
 
