@@ -12,9 +12,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 ## !!!!  Nächste Termine  !!!! 
 
 |So.26.02.23|10:30|Diamantene Konfirmation|ev. Kirche Langsdorf|
-
 |Sa.18.03.23|19:00|Konzert|Ettingshausen|
-
 |So.26.03.23|17:00|Orgel und Freunde|ev. Kirche Langsdorf|
 
 
