@@ -15,7 +15,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 |Sa.18.03.23|19:00|Konzert|Ettingshausen|
 |So.26.03.23|17:00|Orgel und Freunde|ev. Kirche Langsdorf|
 
-
+ ![Konzert](img/musikalischer gottesdienst.jpg){:width="200px"}
 
 
 
