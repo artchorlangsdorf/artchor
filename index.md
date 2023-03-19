@@ -13,7 +13,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 |So.26.03.23|17:00|Orgel und Freunde|ev. Kirche Langsdorf|
 
-# ![Konzert](img/Orgel+Freunde.jpg){:width="400px"}
+# ![Konzert](img/Orgel+Freunde2.jpg){:width="400px"}
 
 
 
