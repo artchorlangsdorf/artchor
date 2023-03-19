@@ -11,10 +11,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa.18.03.23|19:00|Konzert|Ettingshausen|
 |So.26.03.23|17:00|Orgel und Freunde|ev. Kirche Langsdorf|
-
-# ![Konzert](img/KonzertEttingshausen.jpg){:width="800px"}
 
 # ![Konzert](img/Orgel+Freunde.jpg){:width="400px"}
 
