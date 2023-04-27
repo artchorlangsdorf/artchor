@@ -20,11 +20,11 @@
 ## Juni
 
 - So. 04.06.   10:30   Musikalische Gestaltung der goldenen Konfirmation  ev. Kirche Langsdorf
+- Sa. 24.06    19:00   evt. Konzert der St.Lioabe-Schule im Dolce Bad Nauheim
 
 ## Juli
 
-- Sa. 08.07.   17:00   Gottesdienst zum “Tag des offenen Dorfes” ev. Kirche Langsdorf
-- Sa. 25.06.   17:00   Konzert "Schlossakkord" von TonArt Hungen
+- Sa. 08.07.   17:00   Konzert "Schlossakkord" von TonArt Hungen
 
 ## Oktober
 
