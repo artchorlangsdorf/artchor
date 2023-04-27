@@ -13,7 +13,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 |So. 04.06.23|10:30|Musikalische Gestaltung der goldenen Konfirmation  ev. Kirche Langsdorf|
 |Sa. 24.06.23|19:00|evt. Konzert der St.Lioabe-Schule im Dolce Bad Nauheim|
-
+|Sa. 08.07.23|18:00 |Konzert "Schlossakkord" von TonArt Hungen|
 
 
 
