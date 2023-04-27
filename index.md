@@ -11,9 +11,9 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|So.26.03.23|17:00|Orgel und Freunde|ev. Kirche Langsdorf|
+|So. 04.06.23|10:30|Musikalische Gestaltung der goldenen Konfirmation  ev. Kirche Langsdorf|
+|Sa. 24.06.23|19:00|evt. Konzert der St.Lioabe-Schule im Dolce Bad Nauheim|
 
-# ![Konzert](img/Orgel+Freunde2.jpg){:width="400px"}
 
 
 
