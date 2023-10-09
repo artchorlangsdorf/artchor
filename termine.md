@@ -29,7 +29,11 @@
 ## Oktober
 
 - So. 08.10.   10:30   Erntedank Gottesdienst ev. Kirche Langsdorf
+- 
+## November
 
+- Sa. 25.11.   19:00   Konzert Rosbach Ev. Stadtkirche
+  
 ## Dezember
 
 - Sa. 09.12.   19:00   Adventskonzert ev. Kirche Langsdorf
