@@ -11,4 +11,6 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|So. 08.10.23|10:30 |Erntedank Gottesdienst ev. Kirche Langsdorf|
+|Sa. 25.11.23|19:00 |Konzert Rosbach Ev. Stadtkirche|
+
+[Konzert](img/KONZERT Rosbach-25-11-23.jpg){:width="200px"}
