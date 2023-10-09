@@ -11,6 +11,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa. 25.11.23|19:00 |Konzert Rosbach Ev. Stadtkirche|
+|Sa. 25.11.23|19:00|Konzert Rosbach Ev. Stadtkirche|
+|Sa. 09.12.23|19:00|Adventskonzert ev. Kirche Langsdorf|
 
 ![Konzert](img/konzertrosbach23.jpg){:width="600px"}
