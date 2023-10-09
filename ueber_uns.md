@@ -1,7 +1,7 @@
 |[Home](index.md)|[Über uns](ueber_uns.md)|[Termine](termine.md)|[Kontakte](kontakte.md)|[Impressum](impressum.md)|
 
 # Der Chor
-![Chor](img/ArtChor2019_2.JPG){:width=200}
+![Chor](img/ArtChor2023.JPG){:width=200}
 
 Der Art Chor Langsdorf wurde 1977 als Jugendchor der evangelischen Gemeinde in Langsdorf gegründet. Die Umbenennung in ArtChor Langsdorf erfolgte 1998. Mittlerweile kann der Chor auf über 30 Jahre Chorarbeit und ihre Erfolge zurückblicken: Unzählige Konzerte, zahlreiche erlebnisreiche Chorfreizeiten (Kloster Ilbenstadt, Marburg, Mainz) und Teilnahmen an größeren, teils internationalen Chorprojekten (u.a. mit John Vaida, Music Director aus Pennsylvania/USA sowie Alastair Thompson, ehem. Mitglied der King's Singers) ließen das Gemeinschaftsgefüge und den Klangkörper des Chores wachsen. Trotz stetig wechselnder Besetzung der Frauen- und Männerstimmen gelang und gelingt es, mit momentan 19 aktiven Sängerinnen und Sängern anspruchsvolle Chormusik auf die Bühne zu bringen. Mitverantwortlich dafür ist der Chorleiter Thomas Bailly, mit dem der Chor seit 1989 zusammen arbeitet. Außerdem tritt der ArtChor Langsdorf regelmäßig in Gottesdiensten und bei öffentlichen Veranstaltungen auf.
 
