@@ -13,4 +13,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 |Sa. 25.11.23|19:00 |Konzert Rosbach Ev. Stadtkirche|
 
-[Konzert](img/konzertrosbach23.jpg){:width="200px"}
+![Konzert](img/konzertrosbach23.jpg){:width="200px"}
