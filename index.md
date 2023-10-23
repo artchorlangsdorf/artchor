@@ -17,4 +17,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ![Konzert1](img/konzertrosbach23.jpg){:width="600px"}
 
-![Konzert2](img/adventskonzert23.jpg){:width="600px"}
+![Konzert2](img/Adventskonzert23.jpg){:width="600px"}
