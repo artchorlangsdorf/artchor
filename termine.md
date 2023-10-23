@@ -37,6 +37,7 @@
 ## Dezember
 
 - Sa. 09.12.   19:00   Adventskonzert ev. Kirche Langsdorf
+- Sa. 16.12.   19:30   Adventskonzert Bad Nauheim
 - So. 24.12.   23:00   Christmette ev. Kirche Langsdorf
 
 # Proben-Termine
