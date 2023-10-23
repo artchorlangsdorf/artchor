@@ -12,9 +12,12 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 ## !!!!  Nächste Termine  !!!! 
 
 |Sa. 25.11.23|19:00|Konzert Rosbach Ev. Stadtkirche|
-|Sa. 16.12.23|19:30|Adventskonzert Bad Nauheim|
 |Sa. 09.12.23|19:00|Adventskonzert ev. Kirche Langsdorf|
+|Sa. 16.12.23|19:30|Adventskonzert Bad Nauheim|
+
 
 ![Konzert1](img/konzertrosbach23.jpg){:width="600px"}
+
+
 
 ![Konzert2](img/Adventskonzert23.jpg){:width="600px"}
