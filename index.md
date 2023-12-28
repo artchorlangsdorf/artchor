@@ -11,8 +11,7 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa. 09.12.23|19:00|Adventskonzert ev. Kirche Langsdorf|
-|Sa. 16.12.23|19:30|Adventskonzert Bad Nauheim|
-|So. 24.12.23|23:00|Christmette ev. Kirche Langsdorf|
+|Sa. 03.02.24|18:45|Konzertkonzert ev. Kirche Langsdorf|
 
-![Konzert2](img/Adventskonzert23.jpg){:width="600px"}
+
+![Konzert2](img/Konzert_3.2.24.jpg){:width="600px"}
