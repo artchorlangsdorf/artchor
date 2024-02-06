@@ -14,4 +14,3 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 |Sa. 03.02.24|18:45|Konzertkonzert ev. Kirche Langsdorf|
 
 
-![Konzert2](img/Konzert_3.2.24.jpg){:width="600px"}
