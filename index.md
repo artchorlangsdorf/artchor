@@ -11,6 +11,5 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa. 03.02.24|18:45|Konzertkonzert ev. Kirche Langsdorf|
-
+|So. 14.04.24|10:30|Musikalische Gestaltung der Konfirmation  ev. Kirche Langsdorf|
 
