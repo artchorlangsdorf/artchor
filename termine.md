@@ -1,43 +1,38 @@
 |[Home](index.md)|[Über uns](ueber_uns.md)|[Termine](termine.md)|[Kontakte](kontakte.md)|[Impressum](impressum.md)|
 
-# Termine 2023
+# Termine 2024
 
 ## Februar
 
-- Fr. 03.02.   Probenwochenende 1
-- So. 04.02.   Probenwochenende 2
-- So. 26.02.   10:30   Musikalische Gestaltung der diamantenen Konfirmation  ev. Kirche Langsdorf
+- Sa. 03.02.   Konzert in Langsdorf
 
 ## März
 
-- Sa. 18.03.   19:00   Konzert in Ettingshausen
-- So. 26.03.   17:00   Orgel und Freunde ev. Kirche Langsdorf 
 
 ## April
 
-- So. 23.04.   10:30   Musikalische Gestaltung der Konfirmation  ev. Kirche Langsdorf
+- So. 14.04.   10:30   Musikalische Gestaltung der Konfirmation  ev. Kirche Langsdorf
+  
+## Mai
+
+- Mi. 08.05.   19:30   Konzert im Dolce Bad Nauheim
+
 
 ## Juni
 
-- So. 04.06.   10:30   Musikalische Gestaltung der goldenen Konfirmation  ev. Kirche Langsdorf
-- Sa. 24.06    19:00   evt. Konzert der St.Lioabe-Schule im Dolce Bad Nauheim
+- So. 09.06.   10:30   Musikalische Gestaltung der goldenen Konfirmation  ev. Kirche Langsdorf
 
 ## Juli
 
-- Sa. 08.07.   17:00   Konzert "Schlossakkord" von TonArt Hungen
 
 ## Oktober
 
-- So. 08.10.   10:30   Erntedank Gottesdienst ev. Kirche Langsdorf
   
 ## November
 
-- Sa. 25.11.   19:00   Konzert Rosbach Ev. Stadtkirche
   
 ## Dezember
 
-- Sa. 09.12.   19:00   Adventskonzert ev. Kirche Langsdorf
-- Sa. 16.12.   19:30   Adventskonzert Bad Nauheim
 - So. 24.12.   23:00   Christmette ev. Kirche Langsdorf
 
 # Proben-Termine
