@@ -12,4 +12,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/)
 ## !!!!  Nächste Termine  !!!! 
 
 |So. 14.04.24|10:30|Musikalische Gestaltung der Konfirmation  ev. Kirche Langsdorf|
-
+|Mi. 08.05.24|19:30|Konzert im Dolce Bad Nauheim|
