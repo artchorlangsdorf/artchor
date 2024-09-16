@@ -13,4 +13,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 |So. 22.09.24|19:00|Musikalische Gestaltung "500 Jahre ev. Gesangbuch"  ev. Kirche Langsdorf|
 
-(img/500gesangbuch.jpg){:width="200px"}
+![Konzert](img/500gesangbuch.jpg){:width=25}
