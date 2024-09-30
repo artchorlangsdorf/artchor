@@ -11,9 +11,5 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 ## !!!!  Nächste Termine  !!!! 
 
-|So. 22.09.24|19:00|Musikalische Gestaltung "500 Jahre ev. Gesangbuch"  ev. Kirche Langsdorf|
-|Sa. 02.11.24|19:00|Musikalische Gestaltung Abendgottesdienst  ev. Kirche Langsdorf|
-
-
-
-![Konzert](img/500gesangbuch.jpg){:width=25}
+|So. 24.12.24|23:00|Christmette in der ev. Kirche Langsdorf|
+|So. 18.01.25|19:00|Neujahrskonzert in der ev. Kirche Langsdorf|
