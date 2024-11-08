@@ -12,7 +12,7 @@
 - Sa. 18.01.   18:00   NeujahrsKonzert ev. Kirche Langsdorf
 
 ## März
-- Auftritt Licher Kulturtage (Termin steht noch nicht fest
+- Sa. 22.03.   20:00   Auftritt Licher Kulturtage in der Synagoge
   
 ## Mai
 - So. 04.05.   10:30   Musikalische Gestaltung der Konfirmation  
