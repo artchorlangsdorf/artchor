@@ -1,39 +1,34 @@
 |[Home](index.md)|[Über uns](ueber_uns.md)|[Termine](termine.md)|[Kontakte](kontakte.md)|[Impressum](impressum.md)|
 
 # Termine 2024
-
-## Februar
-
-- Sa. 03.02.   Konzert in Langsdorf
-
-## März
-
-
-## April
-
-- So. 14.04.   10:30   Musikalische Gestaltung der Konfirmation  ev. Kirche Langsdorf
-  
-## Mai
-
-- Mi. 08.05.   19:30   Konzert im Dolce Bad Nauheim
-
-
-## Juni
-
-- So. 09.06.   10:30   Musikalische Gestaltung der goldenen Konfirmation  ev. Kirche Langsdorf
-
-## Juli
-
-
-## Oktober
-
-  
-## November
-
   
 ## Dezember
+- Di. 24.12.   23:00   Christmette ev. Kirche Langsdorf
 
-- So. 24.12.   23:00   Christmette ev. Kirche Langsdorf
+
+# Termine 2025
+
+## Januar
+- Sa. 18.01.   18:00   NeujahrsKonzert ev. Kirche Langsdorf
+
+## März
+- Auftritt Licher Kulturtage (Termin steht noch nicht fest
+  
+## Mai
+- So. 04.05.   10:30   Musikalische Gestaltung der Konfirmation  
+
+## Juni
+- So. 14.06.   18:00   Orgeljubiläum in der ev. Kirche Langsdorf
+
+## August
+- So. 17.08.   17:00   Arnsburger Vesper in Kloster Arnsburg
+
+## Oktober
+- Sa. 25.10.   18:00   Konzert "40 Jahre Thomas Bailly" ev. Kirche Langsdorf
+  
+## Dezember
+- Mi. 24.12.   23:00   Christmette ev. Kirche Langsdorf
+
 
 # Proben-Termine
 
