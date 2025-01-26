@@ -11,6 +11,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 ## !!!!  Nächste Termine  !!!! 
 
-|So. 24.12.24|23:00|Christmette in der ev. Kirche Langsdorf|
-|So. 18.01.25|18:00|Neujahrskonzert in der ev. Kirche Langsdorf|
 |Sa. 22.03.25|20:00|Konzert im Rahmen der Licher Kulturtage in der Synagoge|
