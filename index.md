@@ -11,4 +11,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa. 22.03.25|20:00|Konzert im Rahmen der Licher Kulturtage in der Synagoge|
+|Sa. 22.03.25|19:30|Konzert im Rahmen der Licher Kulturtage in der Synagoge|
