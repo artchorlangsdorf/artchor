@@ -11,5 +11,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa. 22.03.25|19:30|Konzert im Rahmen der Licher Kulturtage in der Synagoge|
-# ![plakat](img/kulturtage_2025.jpg){:width="600px"}
+|Sa. 14.06.25|18:00|Orgeljubiläum in der ev. Kirche Langsdorf|
