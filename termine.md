@@ -15,7 +15,8 @@
 - Sa. 22.03.   19:30   Auftritt Licher Kulturtage in der Synagoge
   
 ## Mai
-- So. 04.05.   10:30   Musikalische Gestaltung der Konfirmation  
+- So. 04.05.   10:30   Musikalische Gestaltung der Konfirmation
+- So. 25.05    17:00   Konzert mit Lioba Voices u. Dom-Sing-Schule in der Bernhardkirche Ffm
 
 ## Juni
 - So. 14.06.   18:00   Orgeljubiläum in der ev. Kirche Langsdorf
