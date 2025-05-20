@@ -13,3 +13,5 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 |So. 25.05.25|17:00|Konzert mit Lioba Voices u. Dom-Sing-Schule in der Bernhardkirche Ffm|
 |Sa. 14.06.25|18:00|Orgeljubiläum in der ev. Kirche Langsdorf|
+
+# Plakat ![konzert](img/Konzert_24_05_25_Frankfurt.jpg){:width="200px"}
