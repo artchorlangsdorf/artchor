@@ -13,4 +13,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 |So. 17.08.25|17:00|Arnsburger Vesper in Kloster Arnsburg|
 
-#  ![konzert](img/arnsburger_versper_25.jpg){:width="600px"}
+#  ![konzert](img/arnsburger_vesper_25.jpg){:width="600px"}
