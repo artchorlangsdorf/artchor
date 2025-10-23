@@ -25,7 +25,7 @@
 - So. 17.08.   17:00   Arnsburger Vesper in Kloster Arnsburg
 
 ## Oktober
-- Sa. 25.10.   18:00   Konzert "40 Jahre Thomas Bailly" ev. Kirche Langsdorf
+- Sa. 25.10.   17:00   Konzert "40 Jahre Thomas Bailly" ev. Kirche Langsdorf
   
 ## Dezember
 - Mi. 24.12.   23:00   Christmette ev. Kirche Langsdorf
