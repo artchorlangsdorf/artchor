@@ -11,6 +11,6 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa. 25.10.25|17:00|Konzert “40 Jahre Thomas Bailly” ev. Kirche Langsdorf|
+|Sa. 13.12.25|19:00|Adventskonzert  ev. Kirche Langsdorf|
 
-#  ![konzert](img/plakat_20251025.jpg){:width="600px"}
+
