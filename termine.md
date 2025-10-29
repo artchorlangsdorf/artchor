@@ -28,6 +28,7 @@
 - Sa. 25.10.   17:00   Konzert "40 Jahre Thomas Bailly" ev. Kirche Langsdorf
   
 ## Dezember
+- Sa. 13.12.   19:00   Adventskonzert ev. Kirche Langsdorf
 - Mi. 24.12.   23:00   Christmette ev. Kirche Langsdorf
 
 
