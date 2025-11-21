@@ -14,4 +14,4 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 |Sa. 13.12.25|19:00|Adventskonzert  ev. Kirche Langsdorf|
 |Mi. 24.12.25|23:00| Christmette ev. Kirche Langsdorf|
 
-![Konzert](img/Adventskonzert25.jpg){:width="200px"}
+![Konzert](img/Adventskonzert25.jpg){:width="600px"}
