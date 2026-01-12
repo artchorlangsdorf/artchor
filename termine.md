@@ -1,35 +1,18 @@
 |[Home](index.md)|[Über uns](ueber_uns.md)|[Termine](termine.md)|[Kontakte](kontakte.md)|[Impressum](impressum.md)|
 
-# Termine 2024
-  
-## Dezember
-- Di. 24.12.   23:00   Christmette ev. Kirche Langsdorf
-
-
-# Termine 2025
+# Termine 2026
 
 ## Januar
-- Sa. 18.01.   18:00   NeujahrsKonzert ev. Kirche Langsdorf
+- So. 25.01.   13:00   Entpflichtung Hans-Peter Gies ev. Kirche Langsdorf
 
-## März
-- Sa. 22.03.   19:30   Auftritt Licher Kulturtage in der Synagoge
-  
 ## Mai
-- So. 04.05.   10:30   Musikalische Gestaltung der Konfirmation
-- So. 25.05    17:00   Konzert mit Lioba Voices u. Dom-Sing-Schule in der Bernhardkirche Ffm
+- Sa. 30.05    19:00   Frühjahrskonzert in der ev. Kirche Langsdorf
 
-## Juni
-- So. 14.06.   18:00   Orgeljubiläum in der ev. Kirche Langsdorf
-
-## August
-- So. 17.08.   17:00   Arnsburger Vesper in Kloster Arnsburg
-
-## Oktober
-- Sa. 25.10.   17:00   Konzert "40 Jahre Thomas Bailly" ev. Kirche Langsdorf
+## November
+- So. 29.11.   17:00   Adventskonzert ev. Kirche Langsdorf
   
 ## Dezember
-- Sa. 13.12.   19:00   Adventskonzert ev. Kirche Langsdorf
-- Mi. 24.12.   23:00   Christmette ev. Kirche Langsdorf
+- Do. 24.12.   23:00   Christmette ev. Kirche Langsdorf
 
 
 # Proben-Termine
