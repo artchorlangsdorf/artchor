@@ -11,7 +11,5 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 ## !!!!  Nächste Termine  !!!! 
 
-|Sa. 13.12.25|19:00|Adventskonzert  ev. Kirche Langsdorf|
-|Mi. 24.12.25|23:00| Christmette ev. Kirche Langsdorf|
+|So. 25.01.26|13:00|Entpflichtung Hans-Peter Gies ev. Kirche Langsdorf|
 
-![Konzert](img/Adventskonzert25.jpg){:width="600px"}
