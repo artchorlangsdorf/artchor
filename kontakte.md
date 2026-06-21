@@ -2,7 +2,8 @@
 
 # Kontakte
 
-|Ines Hoffmann |Kontakt  |mail@artchor.de |
+|Ines Hoffmann |Kontakt  |artchor@posteo.de |
 |Thomas Bailly | Chorleiter|thomas-bailly@t-online.de|
-|Facebook      |         |[Facebook] (https://facebook.com/ArtChorLangsdorf/) [externer Link]|
+|Instagramm    |         |[Facebook](https://facebook.com/ArtChorLangsd)|
+|Facebook      |         |[Facebook](https://facebook.com/ArtChorLangsdorf/) (https://facebook.com/ArtChorLangsdorf/) [externer Link]|
 |Dirk Emmerich |Webadmin |admin@artchor.de|
