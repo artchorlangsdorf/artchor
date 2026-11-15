@@ -11,7 +11,6 @@ Du findest uns auch bei [Facebook](https://facebook.com/ArtChorLangsdorf/) [exte
 
 ## !!!!  Nächste Termine  !!!! 
 
-| So. 19.04.26 | 10:00 | Konfirmation ev. Kirche Langsdorf |
-| Sa. 30.05.26 | 19:00 | Frühjahrskonzert in der ev. Kirche Langsdorf |
+| So. 29.11.26 | 17:00 | Adventskonzert in der ev. Kirche Langsdorf |
 
 # Home ![Logo](img/adventskonzert_26.jpg){:width="600px"}
