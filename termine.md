@@ -2,21 +2,39 @@
 
 # Termine 2026
 
-## Januar
-- So. 25.01.   13:00   Entpflichtung Hans-Peter Gies ev. Kirche Langsdorf
-  
-## April
-- So. 19.04.   10:00   Konfirmation ev. Kirche Langsdorf
-  
-## Mai
-- Sa. 30.05    19:00   Frühjahrskonzert in der ev. Kirche Langsdorf
-
 ## November
 - So. 29.11.   17:00   Adventskonzert ev. Kirche Langsdorf
   
 ## Dezember
 - Do. 24.12.   23:00   Christmette ev. Kirche Langsdorf
 
+
+# Termine 2027
+
+## Januar
+- So. 17.01.   10:00   Gottesdienst (Ort folgt noch)
+- So. 31.01.   17:00   Jubiläumskonzert in der ev. Kirche Langsdorf
+  
+## Februar
+- So. 21.02.   10:00   Gottesdienst (Ort folgt noch)
+  
+## April
+- So. 18.04.   10:00   Gottesdienst (Ort folgt noch)
+  
+## Mai
+- So. 23.05.   10:00   Konfirmation ev. Kirche Langsdorf
+ 
+## August
+- So. 22.08.   10:00   Gottesdienst (Ort folgt noch)
+
+## September
+- So. 19.09.   17:00   Arnsburger Vesper
+
+## November
+- So. 28.11.   17:00   Gottesdienst (Ort folgt noch)
+  
+## Dezember
+- Fr. 24.12.   23:00   Christmette ev. Kirche Langsdorf
 
 # Proben-Termine
 
